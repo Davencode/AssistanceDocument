@@ -7,5 +7,5 @@ _if you have some issues please contact the following accounts_
 
 ***davidebelardi1994@gmail.com*** <br>
 ***coverforhobbyit@gmail.com*** <br>
-***lucchesigianluca@hotmail.it***
+***lucchesigianluca@hotmail.it*** <br>
 ***antonio.facciolli@gmail.com***
